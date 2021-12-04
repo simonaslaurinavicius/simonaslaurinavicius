@@ -1,8 +1,8 @@
 **On display:**
 
-**&nbsp;&nbsp;&nbsp;&nbsp;Fragment from a cover of BYTE magazine, July 1997, Volume 2, Number 7**
+**&nbsp;&nbsp;&nbsp;&nbsp;Woman enjoying herself "inside" BMW Isetta**
 
-**&nbsp;&nbsp;&nbsp;&nbsp;Source: https://lunduke.substack.com/p/the-truly-epic-byte-magazine-covers**  
+**&nbsp;&nbsp;&nbsp;&nbsp;Source: https://www.bmw.com/en/automotive-life/history-BMW-isetta.html**  
 
 **&larr;**
 <!--
