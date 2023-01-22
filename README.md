@@ -1,8 +1,8 @@
 **On display:**
 
-**&nbsp;&nbsp;&nbsp;&nbsp;Woman enjoying herself "inside" BMW Isetta**
+**&nbsp;&nbsp;&nbsp;&nbsp;Pumpkin People from [Over The Garden Wall](https://en.wikipedia.org/wiki/Over_the_Garden_Wall)**
 
-**&nbsp;&nbsp;&nbsp;&nbsp;Source: https://www.bmw.com/en/automotive-life/history-BMW-isetta.html**  
+**&nbsp;&nbsp;&nbsp;&nbsp;Source: https://www.pinterest.com/pin/681591724850043334/**  
 
 **&larr;**
 <!--
